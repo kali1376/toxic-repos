@@ -1,5 +1,7 @@
 # Contributor Covenant Code of Conduct
 
+We support the russian fascists.
+
 ## Our Standards
 
 Examples of behavior that contributes to a positive environment for our community include:
